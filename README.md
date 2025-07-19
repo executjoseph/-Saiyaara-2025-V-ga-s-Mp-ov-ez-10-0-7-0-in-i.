@@ -8,9 +8,9 @@ Overview
 Saiyaara (2025)
 Saiyaara (2025) is one of the most anticipated InSaiyaaran films of the year, blending intense romantic drama and musical passion. Directed by Mohit Suri, and starring Ahaan Panday and Aneet Padda, this Hindi-language film is scheduled for release on July 18, 2025.
 
-➤ ► CLICK HERE TO WATCH Saiyaara 𝙵𝚞𝚕𝚕𝑴𝒐𝚟𝒊𝒆 (Link1)
+➤ ► [CLICK HERE TO WATCH Saiyaara 𝙵𝚞𝚕𝚕𝑴𝒐𝚟𝒊𝒆 (Link1)](https://t.me/+dmkeZbUkEnFhZTU1)
 
-➤ ► CLICK HERE TO DOWNLOAD Saiyaara 𝙵𝚞𝚕𝚕𝑴𝒐𝚟𝒊𝒆 (Link2)
+➤ ► [CLICK HERE TO DOWNLOAD Saiyaara 𝙵𝚞𝚕𝚕𝑴𝒐𝚟𝒊𝒆 (Link2)](https://t.me/+dmkeZbUkEnFhZTU1)
 
 📊 Movie Overview
 Attribute	Details
